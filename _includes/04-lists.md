@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Coding
+* Cook 🌱🌎 Plant based recipes
+* Enjoy Nature 
+* Getting home to my cat every night 🐈
